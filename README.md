@@ -1,1 +1,0 @@
-# my-new-augmented-reality-projectlreldf
